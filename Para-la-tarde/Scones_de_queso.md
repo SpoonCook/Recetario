@@ -1,4 +1,4 @@
-### Scones de queso 
+### Scones de queso 🧀 :
 
 Ingredientes:
 - 2 y 1/2 Taza de Harina Leudante
